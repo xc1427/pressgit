@@ -1,1 +1,1 @@
-Trump est president
+Trump est idiot.
